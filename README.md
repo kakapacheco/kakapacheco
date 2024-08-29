@@ -1,6 +1,4 @@
-## Hi there 👋
 
-<!--
 meu nome e kauane tenho 15 anos 
 estou no 1 ano do ensino medio 
 estou ultilizando meu email institucional
